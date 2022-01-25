@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dannplhf
-- 👀 I’m interested in playig free fire
+- 👀 I’m interested in playing free fire
 - 🌱 I’m currently learning how to be a spiderman
 - 💞️ I’m looking to collaborate on thanos
 - 📫 How to reach me +91876544567
